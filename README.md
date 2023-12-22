@@ -25,4 +25,8 @@ eProject published at https://lnnhi1310.github.io/Kitchen-Appliances/index.html
 
 ============================
 
+eProject video at https://lnnhi1310.github.io/Kitchen-Appliances/index.html
+
+============================
+
 Thank you for spending your time to look at our work.
